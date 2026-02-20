@@ -48,6 +48,7 @@ If you are:
 Feel free to reach out.
 
 📩 Email: muhammadzain727@icloud.com
+
 🔗 LinkedIn: https://www.linkedin.com/in/muhammad-zain-180a04240/ 
 
 ---
