@@ -47,8 +47,8 @@ If you are:
 
 Feel free to reach out.
 
-📩 Email: muhammadzain91101@gmail.com  
-🔗 LinkedIn: https://linkedin.com/in/ml-m-zain  
+📩 Email: muhammadzain727@icloud.com
+🔗 LinkedIn: https://www.linkedin.com/in/muhammad-zain-180a04240/ 
 
 ---
 
